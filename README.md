@@ -1,2 +1,0 @@
-# lushangxing
-my page
